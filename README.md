@@ -7,7 +7,7 @@
   Add your open source license, GitHub uses MIT license.
 -->
 
-# GitHub Pages
+# How to Get Vultr Free Trial 2025 / $300 Coupon Code / 1-Year Valid
 
 _Create a site or blog from your GitHub repositories with GitHub Pages._
 
